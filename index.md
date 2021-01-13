@@ -9,16 +9,20 @@
 - Alchemy - The method to fuse oneself with God, as in religion or yoga, Union with God. 
 - Al: (Arabic) Allah or God
 - Khem: (Greek) to fuse or cast a metal
-
+n
 - The refining pot is for silver and the furnace for gold,
 But the Lord tests hearts. Source: https://bible.knowing-jesus.com/Proverbs/17/3
 
 - [Bible versus about alchemy](https://www.kingjamesbibleonline.org/Bible-Verses-About-Alchemy/)
 
-- "You will succeed at it (Alchemy) if you take pains to be what you should be- that is to say, pious gentle, benign, charitable, and God-fearing". ~ Nicolas Valois - French Alchemist 15th century ~
+- I succeed as often as I choose TO BE, in [Christ Consciousness](http://christconsciousness.hns.to/). We must choose 'TO BE' aware, conscious, and guided by the Presence of the Holy Spirit. Each moment is a moment to choose God. The Great Work is Now always. 
 
-# 5 minutes with Drok The Menace 
-<iframe width="640" height="360" src="https://www.youtube.com/embed/f5ed8v8NaxY" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
+Namaskar Guru;
+
+# [DrokMenace](http://drokmenace.hns.to/) | [Alchemist.DrokMenace](http://alchemist.drokmenace.hns.to/) | [Guru.DrokMenace](http://guru.drokmenace.hns.to/)
+
+# NO TIME
+<iframe width="946" height="360" src="https://www.youtube.com/embed/4L3Js_fYWHY" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
 
 
 # Illuminati Congo 
