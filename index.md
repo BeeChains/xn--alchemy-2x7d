@@ -1,10 +1,10 @@
-##  ⚗ Alchemy, Keep The Fire Burning | a Handshake blockchain top level domain dedicated to The Great Work. 
+##  ⚗ Alchemy, Keep The Fire Burning | a Handshake blockchain top level domain dedicated to The Great Work. The "I" of All-Conquering Spirit, the Omniscient, Omnipotent and Omnipresent Spark Within us is a drop of burning desire, rippling into a wave as The Great Awakening of the individual soul. Awaken, and The Word becomes The Flame set a blaze with self-expression of The Spirit Within.
 | [The Great Work](http://thegreatwork.hns.to/) | [SERVE THE LIGHT](http://workinthedark.servethelight.hns.to/)
 [![image](https://user-images.githubusercontent.com/37987346/101999396-a37e4380-3caa-11eb-8cc6-e61fb53c7855.png)](http://shapereality.innerinetcompany.hns.to/)
 
 
 
-# Inner I Company, is alchemizing the roots of the World Wide Web by Spiritualizing the intellect and the internet at the [Root Of Perception](http://rootofperception.hns.to/). The material minded "I" sees the world through factual knowledge, but the "I" of Spritualized intellect is the Foundation of Truth.
+# Inner I Company, is alchemizing the roots of the World Wide Web by Spiritualizing the intellect and the internet from the [The Root Zone](http://therootzone.hns.to/) and the [Root Of Perception](http://rootofperception.hns.to/). The material minded "I" sees the world through factual knowledge, but the "I" of Spritualized intellect is the Foundation of Truth.
 
 - Alchemy - The method to fuse oneself with God, as in religion or yoga, Union with God. 
 - Al: (Arabic) Allah or God
