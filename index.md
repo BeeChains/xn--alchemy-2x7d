@@ -10,11 +10,13 @@
 - Alchemy - The method to fuse oneself with God, as in religion or yoga, Union with God. 
 - Al: (Arabic) Allah or God
 - Khem: (Greek) to fuse or cast a metal
-n
+
+- [Bible versus about alchemy](https://www.kingjamesbibleonline.org/Bible-Verses-About-Alchemy/)
+
 - The refining pot is for silver and the furnace for gold,
 But the Lord tests hearts. Source: https://bible.knowing-jesus.com/Proverbs/17/3
 
-- [Bible versus about alchemy](https://www.kingjamesbibleonline.org/Bible-Verses-About-Alchemy/)
+- A thought directed within initiates one into the Still Presence of SOURCE.
 
 - I succeed as often as I choose TO BE, in [Christ Consciousness](http://christconsciousness.hns.to/). We must choose 'TO BE' aware, conscious, and guided by the Presence of the Holy Spirit. Each moment is a moment to choose God. The Great Work is Now always. 
 
