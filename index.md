@@ -18,6 +18,8 @@ But the Lord tests hearts. Source: https://bible.knowing-jesus.com/Proverbs/17/3
 
 - A thought directed within initiates one into the Still Presence of SOURCE.
 
+- A thought directed within to the root of sensation finds stillness and expansion of the mind via self-directed neuroplastcity.
+
 - I succeed as often as I choose TO BE, in [Christ Consciousness](http://christconsciousness.hns.to/). We must choose 'TO BE' aware, conscious, and guided by the Presence of the Holy Spirit. Each moment is a moment to choose God. The Great Work is Now always. 
 
 Namaskar Guru;
