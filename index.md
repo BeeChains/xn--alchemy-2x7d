@@ -15,7 +15,7 @@
 - [Bible versus about alchemy](https://www.kingjamesbibleonline.org/Bible-Verses-About-Alchemy/)
 
 - The refining pot is for silver and the furnace for gold,
-But the Lord tests hearts. Source: https://bible.knowing-jesus.com/Proverbs/17/3
+But the Lord tests hearts. [Source:](https://bible.knowing-jesus.com/Proverbs/17/3)
 
 - A thought directed within initiates one into the Still Presence of SOURCE.
 
