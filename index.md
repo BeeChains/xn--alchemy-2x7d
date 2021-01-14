@@ -1,4 +1,5 @@
-##  ⚗ Alchemy, Keep The Fire Burning | a Handshake blockchain top level domain dedicated to The Great Work. The "I" of All-Conquering Spirit, the Omniscient, Omnipotent and Omnipresent Spark Within us is a drop of burning desire, rippling into a wave as The Great Awakening of the individual soul. Awaken, and The Word becomes The Flame set a blaze with self-expression of The Holy Spirit.
+##  ⚗ Alchemy, Keep The Fire Burning | a Handshake blockchain top level domain dedicated to The Great Work. The "I" of All-Conquering Spirit, the Omniscient, Omnipotent and Omnipresent Spark Within us is a drop of burning desire, rippling into a wave as The Great Awakening of the individual soul. Choose To BE AWAKE! NOW, presence a blaze, the All-Consuming Flame is seen as self-expression flowing from The Holy Spirit.
+
 | [The Great Work](http://thegreatwork.hns.to/) | [SERVE THE LIGHT](http://workinthedark.servethelight.hns.to/)
 [![image](https://user-images.githubusercontent.com/37987346/101999396-a37e4380-3caa-11eb-8cc6-e61fb53c7855.png)](http://shapereality.innerinetcompany.hns.to/)
 
