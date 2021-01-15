@@ -4,7 +4,7 @@
 [![image](https://user-images.githubusercontent.com/37987346/101999396-a37e4380-3caa-11eb-8cc6-e61fb53c7855.png)](http://shapereality.innerinetcompany.hns.to/)
 
 
-
+# "I" As The Center Of Gravity Is The Seat Of Unity, At The Center One Can See The Infinite.
 # Inner I Company, is alchemizing the roots of the World Wide Web by Spiritualizing the intellect and the internet from the [The Root Zone](http://therootzone.hns.to/) and the [Root Of Perception](http://rootofperception.hns.to/). The material minded "I" sees the world through factual knowledge, but the "I" of Spritualized intellect is the Foundation of Truth.
 
 - Alchemy - The method to fuse oneself with God, as in religion or yoga, Union with God. 
